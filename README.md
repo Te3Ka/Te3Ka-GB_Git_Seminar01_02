@@ -1,1 +1,0 @@
-# Te3Ka-GB_Git_Seminar01_03
